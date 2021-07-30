@@ -1,0 +1,1 @@
+O curso tem sido bastante estimulante e o que mais me faz sentir estimulado é o fato de ser "dada a mão sem dar o braço", ou seja nós somos deixados num ponto onde o conhecimento e a prática esta a vista mas só dempende de nós alcansá-los!!
